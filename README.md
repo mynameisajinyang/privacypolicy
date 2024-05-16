@@ -1,4 +1,4 @@
-Of course, let's refine the language to maintain a professional tone while conveying the absence of data collection and usage:
+
 
 ---
 
